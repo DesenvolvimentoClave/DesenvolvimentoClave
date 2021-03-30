@@ -1,4 +1,4 @@
-### 🤔 Quem é a Clave ?
+## Quem é a Clave 🤔 ?
 
 Com a experiência de mais de 25 anos de mercado em processos de mapeamento de perfil e potencial, atrelada às melhores práticas e processos comprovados em toda nossa rede de clientes, a Clave se consolidou com uma das melhores consultorias em recursos humanos do mercado. Atuando de forma objetiva, transparente e ética.
 Ganhamos o reconhecimento e confiança dos candidatos e das empresas de diversos portes e segmentos em todo o território brasileiro.
